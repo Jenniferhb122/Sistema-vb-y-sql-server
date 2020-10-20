@@ -9,3 +9,5 @@ https://www.youtube.com/watch?v=FCq9-Pe7bUU
 
 MUSICA
 https://www.youtube.com/watch?v=jCQ_6XbATPc
+enviar correo desde VB
+https://www.youtube.com/watch?v=XVkXndKLUok
